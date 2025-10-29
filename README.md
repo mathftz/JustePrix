@@ -1,1 +1,1 @@
-# JustePrix
+# Juste Prix
